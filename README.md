@@ -1,2 +1,2 @@
 # reigns
-🐴🐎take control of the reigns
+🐴🐎reign supreme by taking control of the reins
